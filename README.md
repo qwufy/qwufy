@@ -18,7 +18,7 @@
 📫 **How to reach me:**
 If you have any questions or would like to collaborate, feel free to reach out!
 
-**LinkedIn:** https://www.linkedin.com/in/sayat-moldrakhmetov-a6306a2b3/
+**LinkedIn:** https://www.linkedin.com/in/sayat-moldrakhmetov/
 
 **Telegram:** @smn017
 
